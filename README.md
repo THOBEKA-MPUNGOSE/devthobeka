@@ -11,7 +11,7 @@
 - <b>Get to Know me!</b>
   - Watch  My Elevator Pitch  (https://drive.google.com/file/d/1S9eXVchlxZmLiEbUW6_zsZmFaQ4RM8V8/view?usp=drive_lin)
  
-   <b>Fun Fact About Me...!</b>
+   <b>⚡ Fun Fact About Me...!</b>
    - Outside of tech, I love exploring creative outlets like graphic design, cooking, event planning, and makeup artistry. I find joy in transforming simple ideas  whether it’s colors on a face or ingredients in a dish into something beautiful and impactful.
 </a>
 
